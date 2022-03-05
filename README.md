@@ -1,5 +1,16 @@
-- 👋 Hi, I’m @AidenKP
-- 👀 I’m interested in making FNF mods and crap.
-- 🌱 I’m currently learning how to create mods and crap.
-- 💞️ I’m looking to collaborate on nothing yet.
-- 📫 In order to reach to me, idk talk to me.
+hi
+its a me
+aidenkp
+yay
+
+
+
+
+
+
+
+
+
+
+
+*enternal scream*
